@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+國立中山大學行傳所碩二
+台北人
+喜歡打籃球
+喜歡吃麵但最近在飲控
+喜歡交朋友上山下海
